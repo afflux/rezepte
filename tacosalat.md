@@ -13,6 +13,8 @@ Taco-Salat
 * 250 g 	Tortilla-Chips
 * 1 Flasche 	Texicana-Salsa
 
+ergibt eine Schüssel, etwa 8 Portionen.
+
 Hackfleisch in Olivenöl anbraten. Passierte Tomaten mit Gewürzmischung und Wasser vermischen und zum Hackfleisch geben, einkochen lassen.
 
 
