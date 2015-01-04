@@ -6,9 +6,9 @@ Taco-Salat
 * 1 Tüte 	Taco - Würzmischung
 * 200 g 	Tomaten, passiert
 * 2 EL 	Olivenöl
-* 1  	Eisbergsalat
+* ½  	Eisbergsalat
 * 6  	Tomaten
-* 200 g 	Crème Fraîche
+* 250 g 	Crème Fraîche
 * 200 g 	Gouda, geraspelt
 * 250 g 	Tortilla-Chips
 * 1 Flasche 	Texicana-Salsa
