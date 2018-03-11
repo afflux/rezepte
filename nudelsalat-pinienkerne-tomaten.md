@@ -8,6 +8,8 @@ Nudelsalat mit Pinienkernen und getrockneten Tomaten
 * Basilikum
 * Olivenöl
 
+für eine große Schüssel, 6-8 Portionen.
+
 1. Nudeln kochen, in Schüssel geben.
 2. Getrocknete Tomaten in kleine Stücke schneiden und dazugeben.
 3. Pinienkerne *kurz* in Pfanne anbraten (kein Fett nötig). Achtung: werden schnell schwarz. In Schüssel geben.
