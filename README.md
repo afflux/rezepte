@@ -1,6 +1,7 @@
 Vorspeise
 =========
 * [Tacosalat](tacosalat.md)
+* [Nudelsalat mit Pinienkernen und getrockneten Tomaten](nudelsalat-pinienkerne-tomaten.md)
 
 Nachspeise
 ==========
